@@ -1,2 +1,0 @@
-# Madhav
-Spiritual app
